@@ -1,2 +1,2 @@
-# Naan-Mudhalvan-Assignment
+# Naan-Mudhalvan-Project
 Digital Marketing
